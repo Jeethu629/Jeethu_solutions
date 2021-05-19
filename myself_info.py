@@ -1,0 +1,3 @@
+No idea how to start but this "is" my info....
+1) Get started internship at Exponentialai.com (April 2021)
+2) AI, ML , Data Science
